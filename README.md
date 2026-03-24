@@ -1,4 +1,4 @@
-## 👋 Hi, I'm [Christo Joseph Sajan]
+## 👋 Hi, I'm Christo Joseph Sajan
 
 🎓 Focused on AI/ML   
  
